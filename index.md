@@ -7,3 +7,6 @@ Hotzenplotz könnte sein Unwesen treiben.
 * gewissenhaft
 * schlau
 * hilfsbereit
+
+Alois sagt:
+> Wo kommen wir denn da hin?
