@@ -10,3 +10,5 @@ Hotzenplotz könnte sein Unwesen treiben.
 
 Alois sagt:
 > Wo kommen wir denn da hin?
+
+<img src="https://www.reich-der-spiele.de/sites/default/files/styles/550px/public/admin/huch/derraeuberhotzenplotz-soeintheater.jpg"/>
